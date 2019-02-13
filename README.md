@@ -1,0 +1,2 @@
+# seocifytheme
+https://razmon.net/
